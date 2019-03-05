@@ -1,0 +1,1 @@
+https://github.com/fadlanmp/strukdat-02
